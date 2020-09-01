@@ -1,1 +1,0 @@
-I would like to give him a passage on facts about how i feel towards him (gratitude) then, there will be a question to say,'what can you infer from this text' and there will be options to answer that question.
