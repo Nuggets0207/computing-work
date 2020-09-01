@@ -1,1 +1,0 @@
-I want to make a editing text. there will be a passage to show her my gratitude but in between, there will be blanks and 4 words to fill in the blank, she will need to fill in the blank by choosing one of the 4 words. If she gets it correct, thn the passage will make sense, if she gets it wrong, the passage will not make sense.
