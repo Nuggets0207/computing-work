@@ -1,6 +1,6 @@
-WORMWOOD BOARDING SCHOOL
-That name haunted me for a very long time. I went there when i was a kid. Had many adventures, mant mysteries that i solved but also many tortures days. 
-One of the mysteries that i solved there was:
+WORMWOOD BOARDING SCHOOl
+This name has haunted me for the longest time. I have been there when i was little. Had been through many adventures, mant mysteries that i had solved but also many torturous days. 
+One of the many bizzare mysteries that i had solved at WORMWOOD BOARDING SCHOOL is:
 " Why isnt Mrs Denevire here? Wherever has she gone? " asked Amelia.
 " Well who knows," chorsed Duncan and Dunkin, the twins who always spoke together. it was almost as if they shared the sae brain....
 To me, Mrs Denevire being gone was very strange. We were quite close actually, she was almost like a sister to mother. They had grew up together and for her to just 'disapear' was just too strange. Mrs Denevire is our horse riding teacher and Wormwood school. She is a good teacher and taught me for the past 2 years.
